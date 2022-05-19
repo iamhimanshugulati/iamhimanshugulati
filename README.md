@@ -7,7 +7,7 @@
 
 - 👨‍💻 You can also check out my portfolio at [https://iamhimanshugulati.github.io/](https://iamhimanshugulati.github.io/)
 
-- 📫 How to reach me **himanshugulati@outlook.in**
+- 📫 How to reach me **himanshugulati138@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
